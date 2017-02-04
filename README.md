@@ -9,7 +9,7 @@ A recent exception may be the Contemporary English Version, which claims
 > The translators of the CEV followed three principles; that the CEV:  
 -  must be understood by people without stumbling in speech  
 -  must be understood by those with little or no comprehension of "Bible" language  
- - must be understood by all.
+- must be understood by all.
 
 However, it seeks to achieve this aim by dumbing down the language. This seems highly patronising , and is definitely not the way of storytelling! The storyteller respects the audience and treats them like people who will understand what (s)he is saying, and will bring them along to make sure they *do* understand.
 
