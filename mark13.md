@@ -1,0 +1,19 @@
+# Thirteen
+
+And as he was leaving the temple one of his disciples said to him, Teacher, look at these wonderful stones! what wonderful buildings! And Jesus said to him, You see these great buildings? Not one stone will be left upon another, all of them will be torn down.
+
+As he was sitting on the Mount of Olives opposite the Temple, Peter and James and John and Andrew asked him privately, Tell us, when will these things be? and what will be the sign that all this is about to happen? Jesus began to say to them, Watch out that no one leads you astray. Many will come in my name and say, I am the one, and they will deceive many. But when you hear of wars and rumours of wars, don't be alarmed. All this must happen, but the end is not yet. Nation will rise up against nation, kingdom against kingdom; there will be earthquakes here and there, there will be famines -- these are just the start of the troubles. Watch out for yourselves: they will hand you over to councils, you will be beaten in synagogues, you will stand before rulers and kings because of me, to be a witness to them. And the gospel must first be preached to all the nations. And when they take you and hand you over, don't worry beforehand about what to say, but whatever is given to you at that hour, say that, because it's not you speaking but the Holy Spirit. Brother will betray his brother to death, and a father his child, and children will turn against their parents and kill them, and you will be hated by all for my name's sake. But if you remain faithful to the end, you will be saved.
+
+When you see the abomination of desolation standing where it ought not to be (get it?) then let those in Judaea flee to the mountains, those on the housetops not go down into their houses to take anything out, those in the field not turn back even to pick up a coat. Alas for those who are pregnant in those days, or breast-feeding. Pray that it won't be in winter. For in those days there will be suffering such as has never been since the beginning of the creation that God created until now, and never will be again. And if the Lord had not shortened those days, no living thing would be saved, but for the sake of the elect, his chosen ones, he has shortened the days. And if anyone says to you, Look, here is the Messiah! or, Look, there! do not believe them. False messiahs will arise, and false prophets, and they will perform signs and wonders to deceive even the chosen ones, if possible. But you, watch out: I have told you all this beforehand.
+
+But in those days, after that suffering,  
+The sun will be darkened,  
+and the moon will not give its light,  
+the stars will fall from the sky,  
+and the powers of heaven will be shaken.  
+And then they will see the son of man coming on the clouds with great power and glory. And he will send the angels and they will gather his chosen ones from the four winds, from the ends of the earth to the ends of heaven.
+
+Look at the fig tree, and learn its lesson. When you see its branch grow tender and put out leaves, you know that summer is near. So also, when you see all these things happening, then know that he is near, at the very doors. I'm telling you the truth: this generation will not pass away, before all these things happen. Heaven and earth will pass away, but my words will not pass away.
+
+But about that day and hour no one knows, not the angels in heaven, not even the son, but only the Father. Watch out, be prepared, for you do not know when the time will be. Like a man going on a journey; he leaves his house and gives his slaves his authority, each one his own task, and orders the doorkeeper to keep watch. So keep watch, because you don't know when the master of the house is coming, either late in the evening or at midnight, or just before dawn, or at early morning, in case he comes home suddenly and finds you sleeping. What I'm telling you, I'm telling everyone: keep watch!
+
