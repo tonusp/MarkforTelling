@@ -13,5 +13,7 @@ A recent exception may be the Contemporary English Version, which claims
 
 However, it seeks to achieve this aim by dumbing down the language. This seems highly patronising , and is definitely not the way of storytelling! The storyteller respects the audience and treats them like people who will understand what (s)he is saying, and will bring them along to make sure they *do* understand.
 
-What you see here is a draft, or a work in progress. I hope to put up the chapters as they are completed, for comment or suggestion. Remember, if you are reading them, that they are meant to be learned, told aloud, and heard by the audience. I hope to produce audio files of each chapter and make them available here. The translation is intended to be designed for *my* voice and telling style. You may want to 'tweak' them for your own style. You're welcome to do so; but please don't use this version for commercial purposes without permission.
+What you see here is a draft, or a work in progress. I am posting each chapter as it's completed, and each file represents the latest version of the text. You can also find audio files of myself reading each chapter (I have not yet learned and am therefore not *telling* the text) which are hosted on my [Google Drive](https://drive.google.com/drive/folders/0B4x8rkH_YvvOSVotQTg4T3VhdDA?usp=sharing).
+
+Remember, if you are reading these texts yourself, that they are meant to be learned, told aloud, and heard by the audience. The translation is intended to be designed for *my* voice and telling style. You may want to 'tweak' them for your own style. You're welcome to do so; but please don't use this version for commercial purposes without permission.
 
